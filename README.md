@@ -26,7 +26,7 @@ Next time, I could improve my criticism toward my team. I raised my concerns in 
 Furthermore, I could handle more of the planning myself. However, I feel that would be a nonassertive approach. It is not my responsibility to overlook the entire game, but I could **take initiative** by organising tasks and ensuring each one is **delegated** to the right person.
 
 # Week 2 - previous goals
-Twitter update posted: _no progress, due to anxiety_
+Twitter update posted: _A video of the Froggo WIP grass brush_
 Hole punch project: _no progress due to other priorities_
 Decisions pondered: _Birthday present for Natashia - deadline was set at 10 minutes once I became aware I was stalling_
 Assertiveness pages: _10_
