@@ -33,7 +33,17 @@ Assertiveness pages: _10_
 Assertiveness - interesting fact: Nonassertion, assertion and aggression can be distinguished by which party(s) have their needs met.
 
 # Week 3 (11th Feb)
-* Difficult artist attitude, assertiveness
-* Lots of socialisation
-* Blind date, course rep SSLG, assertiveness
-* Reflection on team dynamic.
+This week I questioned the team dynamic. On Friday, a team member told another to fuck off and he wasn't working on the game anymore. This team member is one who I felt most strongly about his impatience, but in retrospect I didn't see the real problem. As always, I maintain a professional attitude and always work like I know no difference between friendly and toxic.
+
+This team member was difficult to talk with, and since he vanished, the other team members are working better together. The difficulty of dealing with him probably scaled up with the other team members, who are quiet and reasonable, and I regret not condemning his approach sooner. I felt I was weak to his strong personality.
+
+I try to remain open-minded and this is positive. However, I could have noticed that even if I can work with a proposed approach, many others can't and will not be explicit about it. I will be more sensitive to my feelings of discomfort from now on, as others may share them. This means more assertiveness and self-confidence.
+
+On the bright side, this was my most social week in a long time. So many events!
+
+# Week 3 - previous goals
+Twitter update posted: _??_
+Hole punch project: _no progress due to other priorities_
+Decisions pondered: _do not know_
+Assertiveness current page: ??
+Assertiveness - interesting fact: ??
