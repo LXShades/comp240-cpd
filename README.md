@@ -31,3 +31,9 @@ Hole punch project: _no progress due to other priorities_
 Decisions pondered: _Birthday present for Natashia - deadline was set at 10 minutes once I became aware I was stalling_
 Assertiveness pages: _10_
 Assertiveness - interesting fact: Nonassertion, assertion and aggression can be distinguished by which party(s) have their needs met.
+
+# Week 3 (11th Feb)
+* Difficult artist attitude, assertiveness
+* Lots of socialisation
+* Blind date, course rep SSLG, assertiveness
+* Reflection on team dynamic.
