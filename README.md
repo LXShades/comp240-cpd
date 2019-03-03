@@ -37,13 +37,46 @@ This week I questioned the team dynamic. On Friday, a team member told another t
 
 This team member was difficult to talk with, and since he vanished, the other team members are working better together. The difficulty of dealing with him probably scaled up with the other team members, who are quiet and reasonable, and I regret not condemning his approach sooner. I felt I was weak to his strong personality.
 
-I try to remain open-minded and this is positive. However, I could have noticed that even if I can work with a proposed approach, many others can't and will not be explicit about it. I will be more sensitive to my feelings of discomfort from now on, as others may share them. This means more assertiveness and self-confidence.
+I treid to remain open-minded. However, I could have instead noticed that even if I can work with a dominating approach, many others can't, and won't express it. I will be more sensitive to my feelings of discomfort from now on, as others may share them. This means more assertiveness and self-confidence.
 
 On the bright side, this was my most social week in a long time. So many events!
 
 # Week 3 - previous goals
-Twitter update posted: _??_
-Hole punch project: _no progress due to other priorities_
-Decisions pondered: _do not know_
-Assertiveness current page: ??
+Twitter update posted: _??_  
+Hole punch project: _no progress due to other priorities_  
+Decisions pondered: _do not know_  
+Assertiveness current page: ??  
 Assertiveness - interesting fact: ??
+
+# Week 4 (18th Feb)
+This week had our first PO meeting after the FART incident, AKA the 'Fuck off, ARTist'. Anticipating a more extensive discussion, what we instead had was priase of the game and being told to continue with this. In spite of the drama, the game is developing strongly on the artistic side and the artists are cooperating more.
+
+In situations like this, sometimes I feel that our team morale is neglected.  We have been told to carry on as normal - in terms of confronting the situation, we're not really any further. It is a shame, but at this stage it is hard to anticipate how we could work together now. The ball is in the aggressor's court, and we've had no apology for the behaviour. We did have an apology for 'dipping on us' mind, but it was followed by disappearance when he was told that a task he was suggesting was already being taken by another artist.
+
+It's frustrating, and further reason to take an assertive stance - which is, perhaps, to take no responsibility. As far as confrontation is concerned, confronting this kind of personality has less benefit than confronting those who e.g. don't attend regularly.
+
+# Week 4 - previous goals
+Twitter update posted: _Grass brush_  
+Hole punch project: _man..._  
+Decisions pondered: _cannot remember this time_  
+Assertiveness current page: ??  
+Assertiveness - interesting fact: I'm not being very assertive.
+
+# Week 5 (25th Feb)
+PASS session decision. I had a difficult time with this one. In trying to come across as less of a try-hard, I made the PASS sessions much more relaxed and less structured for this term. However, attendance this week was 3 and dropped to 1 in the last quarter-hour.
+
+I proposed moving back to the studio. Overall, some were lukewarm about this suggestion. Still, I disagree, and will discuss it with the staff on Monday. Much like the team situation, this was one of those cases where I realised there was a problem but felt an urge to step back when others said it's fine. This time, however, I will assess it proactively, as the attendance blatently depicts a failure to attract interest.
+
+I know I could significantly improve the sessions, but I feel defeated by the work I need to do. The distraction of work is hindering my personal development and I'm frustrated. Running PASS sessions already makes me nervous. Perhaps, if I wasn't anxious, I would
+
+* Run peer reviews?
+* Avoid treating it as PASS and simply state solutions, as my sessions are perhaps too slow for everyone.
+
+Overall, I feel inadequate for this role right now.
+
+# Week 5 - previous goals
+Twitter update posted: _none_  
+Hole punch project: _none_  
+Decisions pondered: _none_  
+Assertiveness current page: ??  
+Assertiveness - interesting fact: My time management is becoming terrible
