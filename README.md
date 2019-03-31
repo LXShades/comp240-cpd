@@ -97,3 +97,15 @@ This week's Show and Tell was especially positive. Me and Charlie presented the 
 My PO feedback has been lower lately, as I haven't been delivering consistent programming work on the game. I've had trouble balancing my time commitments. Previously, they were skewed heavily in favour of the game, but with deadlines approaching, my assignments have taken precedence. From hereon I'll improve my consistency and inform the team in advance of when I'm available (as unfair as it feels, as few others do the same).
 
 I have been stressed about the many smaller tasks that need doing, such as course rep responsibilities and PASS leader duties. I will focus this week on improved time management. Currently, there are dormant tasks on my task list. I will remove these and fill the list with essential tasks, including talking to staff about the PASS session issue, etc.
+
+# Week 8 (18th March)
+* PASS sessions were still faltering
+* Research Journal - A lot of effort for 10%?
+* Finishing MUD evaluation in the library and sacrificing personl time for work
+
+# Week 9 (25th March)
+I can't think of many memorable things this week! What went wrong? Actually, perhaps the main issue was being distracted by a personal issue or two - this took away my focus but is beyond the scope of my professional development. I noticed - and received team feedback - that I have acted negatively around the game. Ultimately I can't shake the thought that the game could be better, and that the regular low team attendance is impacting it. However, if I understand that a positive attitude can, at this stage, only improve the game, then I can ensure that I remain positive.
+
+"Positive" is a vague term, so to test myself I will count the number of times I've included something like a negative 'but' in my sentences, and when addressing issues, try to take a more proactive approach. Try to replace things like 'it could be better if...' with 'let's be even better by...'.
+
+What went well this week? Course rep feedback! Doing this as a survey worked much better for us computing students. I'll continue to do this in the future when collecting feedback.
