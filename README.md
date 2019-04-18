@@ -109,3 +109,35 @@ I can't think of many memorable things this week! What went wrong? Actually, per
 "Positive" is a vague term, so to test myself I will count the number of times I've included something like a negative 'but' in my sentences, and when addressing issues, try to take a more proactive approach. Try to replace things like 'it could be better if...' with 'let's be even better by...'.
 
 What went well this week? Course rep feedback! Doing this as a survey worked much better for us computing students. I'll continue to do this in the future when collecting feedback.
+
+# Week 10 (1st April)
+April Fools!
+
+I cannot remember what happened this week due to somehow forgetting to fill it in. I expect there was a lot of pain and suffering. Course rep nomination stuff challenged my proactivity. A deadline was given, but no-one was prepared to follow the system given to us. I feel it was impractical to request that we find two people who would nominate us before we begin voting. With two course reps total, that would mean six people would need to take action before voting even starts; that's well over half of the people who regularly attend. I requested an extension to the deadline.
+
+# Week 11 (8th April)
+*And now for something completely different!*
+
+I hosted a party this weekend! Interpersonal domain time! I'll keep it short.
+
+What went well:
+* I asked folks to bring games, snacks, etc. We had much food!
+* The others made the party
+
+What didn't go well:
+* In the inviting stages, I didn't ask for a contribution, so paid for the pizza ingredients
+* It took me a while to gain momentum and invite everyone
+
+Several of my problems were in the dispositional domain rather than the interpersonal domain. This included delaying invitations and asking for a contribution.
+
+The following factors led me to delay it:
+* Uncertainty of how to ask
+* Uncertainty of Abi's position on who to invite, what time, etc
+
+The key word is uncertainty. As an introvert, I don't get energised by interacting with people. I can verify a lot more and become less certain by asking people early on. When I don't know, I can take an initial assumption.
+
+Next time, I will:
+* Ascertain the **time**, **people to invite** and **food to have** at least 5 days before the day.
+* Ascertain the **ingredients to buy** for the food and **ask for a contribution while inviting**.
+
+This way I will feel happier and in control about my spending on ingredients.
